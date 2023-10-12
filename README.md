@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @G1tavo7
+- 👋 Hi, I’m Gustavo
 - 👀 I’m interested in soccer, weight training, and my dogs.
 - 🌱 I’m currently learning how to code/program I've never done this before so any advise would be helpful.
 - 💞️ I’m looking to collaborate on nothing at the moment, just looking to learn at the moment.
