@@ -2,7 +2,7 @@
 - 👀 I’m interested in soccer, weight training, and my dogs.
 - 🌱 I’m currently learning how to code/program I've never done this before so any advise would be helpful.
 - 💞️ I’m looking to collaborate on anything at the moment, just looking to learn at the moment.
-- 📫 How to reach me tavolaser55@gmail.com
+- 📫 How to reach me taboadame@gmail.com
 <h1>Hi, I'm Gustavo, an <a href="https://www.linkedin.com/in/gustavo-adame-b0449021a/?trk=public_profile-settings_edit-profile-content">IT Professional</a>☺</h1>
 
 <h2>👨‍💻 Information Technology Projects:</h2>
